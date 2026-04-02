@@ -1,4 +1,4 @@
-# Ervestium befektetesi
+# Ervestium befektetési
 Ervestium befektetési Magyarország Elemzés
 ## Ervestium befektetési Magyarország Elemzés 2026: miért akar egyre több szervezet Magyarországon követhetőbb és nyugodtabb döntéseket
 
